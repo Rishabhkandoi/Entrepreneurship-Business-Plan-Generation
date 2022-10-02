@@ -12,7 +12,7 @@ to follow to achieve his/her learning goals.
 
 ## Solution Summary
 
-We provide out student with quality education content from reputed academic institutions.
+We provide our student with quality education content from reputed academic institutions.
 These courses are quality tested so that students can have a quality learning experience. These
 courses are recommended students according to their preferences. There is a discussion forum
 where students can help each other in their respective field of study. Mentor ship is provided
